@@ -1,1 +1,2 @@
 # why-im-better-then-you
+I’m better than you my shape up better my car faster my drip better my clothes fit better my hoes better my tatoos better im stronger than you my bitch thicker than yours my guns bigger than yours nigga my guns bigger than yours i talk better than you i hustle better i can get a dollar quicker than you i talk better i walk better my shoes fit me better i get paid more than you
